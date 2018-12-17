@@ -1,3 +1,3 @@
- https//khalaf57.github.io/ml17kfma.github.io/
+ https://khalaf57.github.io/ml17kfma.github.io/
 
 Please work
